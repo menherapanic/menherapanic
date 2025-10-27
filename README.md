@@ -1,6 +1,12 @@
+<img align="left" width="170" height="170" src="https://i.postimg.cc/pLFcQNqF/ae6ff8f77f954d2c03a48e4e74985166-removebg-preview.png"> yves or terra.
+ 
+shy/hyr, hy/hym, he/him, and other neopronouns. do not use they/them on me.
 
-<a href="https://ibb.co/HD1JX7vz"><img src="https://i.ibb.co/KjR1m6Zq/ae6ff8f77f954d2c03a48e4e74985166-removebg-preview.png" alt="ae6ff8f77f954d2c03a48e4e74985166-removebg-preview" border="0"></a> yves
+biromantic gay---i support all "good faith" labels! i am *not* pro-radqueer.
 
+interested in 18trip, prime defenders, vtubers, as well as other things at the moment!
+
+say hi to me on ponytown if you want :)
 <!--
 **menherapanic/menherapanic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
